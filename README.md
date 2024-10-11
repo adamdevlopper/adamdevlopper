@@ -28,8 +28,8 @@
     
 📫 How to Reach Me
 
-    **LinkedIn**: [Adam Jaghou](https://www.linkedin.com/in/adam-jaghou)
-    **Email**: [adamdevlopper@gmail.com](mailto:adamdevlopper@gmail.comu)
+    **LinkedIn**: [Adam Jaghou](https://www.linkedin.com/in/adam-jaghou)  
+    **Email**: [adamdevlopper@gmail.com](mailto:adamdevlopper@gmail.com)
     
 ⚡ Fun Facts & Hobbies
 
